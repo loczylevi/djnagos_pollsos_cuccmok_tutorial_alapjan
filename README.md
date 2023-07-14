@@ -1,0 +1,1 @@
+# djnagos_pollsos_cuccmok_tutorial_alapjan
